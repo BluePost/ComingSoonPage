@@ -1,1 +1,0 @@
-Bluepost logos are copyright
